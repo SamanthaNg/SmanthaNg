@@ -1,2 +1,2 @@
-# https://SmanthaNg/github.io
+# https://SmanthaNg.github.io
 
